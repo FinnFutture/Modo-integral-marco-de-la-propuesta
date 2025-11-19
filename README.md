@@ -1,1 +1,2 @@
 # Modo-integral-marco-de-la-propuesta
+El ordenamiento de las propuestas de inversión constituye el paso previo anterior al análisis particular y un sistema criterioso de clasificación y calificación, puede ahorrar el tiempo y esfuerzo suficiente que justifique con creces lo que en ocasiones puede parecer costoso e innecesario. Las propuestas requieren de la coherencia de un programa que conforme una política, que es la que verdaderamente debe señalar las líneas básicas de acción, a las cuales deberán ceñirse como requisito descalificatorio.
